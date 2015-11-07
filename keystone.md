@@ -8,6 +8,12 @@ Several former administration officials said Friday that Obama and Secretary of 
 
 Backers of the project said it would ensure a secure supply of oil from a reliable U.S. ally and create jobs; opponents said it would exacerbate climate change by releasing a massive amount of carbon into the atmosphere and would produce pollution hazards along the pipeline’s route.
 
+Sveral former administration officials said Friday that Obama and Secretary of State John F. Kerry had decided to block the project two years ago but waited for the legally required internal review, a revised permit application and, finally, a politically opportune time to announce the decision.
+
+Backers of the project said it would ensure a secure supply of oil from a reliable U.S. ally and create jobs; opponents said it would exacerbate climate change by releasing a massive amount of carbon into the atmosphere and would produce pollution hazards along the pipeline’s route.
+
+
+
 What started as a routine permit application for a project to move 830,000 barrels of crude oil a day to Gulf Coast refineries became a political litmus test for Obama, who said Friday that the pipeline had taken on “an overinflated role in our political discourse.”
 
 The State Department, which controls permits for projects that cross international boundaries, concluded that neither approval nor rejection of the project would significantly alter the globe’s overall carbon output or U.S. gasoline prices.
