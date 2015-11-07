@@ -2,6 +2,9 @@
 
 President Obama announced Friday that his administration will not issue a permit for construction of the controversial Keystone XL pipeline, arguing that approval would undermine the U.S. effort to curb greenhouse gases.
 
+![Obama](http://www.usnews.com/cmsmedia/c4/22/1e9c4e1743619199769861c8ada0/150106-obamakeystone-editorial.jpg)
+
+
 "America’s now a global leader when it comes to taking serious action to fight climate change,” Obama said. “And frankly, approving this project would have undercut that global leadership. And that’s the biggest risk we face — not acting.”
 
 Denying TransCanada Corp. a permit for the 1,179-mile pipeline between Hardisty, Alberta, and Steele City, Neb., ends a seven-year fight over a project that became a symbol in the political battle over climate change.
