@@ -1,4 +1,4 @@
-# Keystone
+# Obama rejects Keystone XL project, citing U.S. climate leadership
 
 President Obama announced Friday that his administration will not issue a permit for construction of the controversial Keystone XL pipeline, arguing that approval would undermine the U.S. effort to curb greenhouse gases.
 
