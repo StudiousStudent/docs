@@ -22,3 +22,7 @@ Backers of the project said it would ensure a secure supply of oil from a reliab
 What started as a routine permit application for a project to move 830,000 barrels of crude oil a day to Gulf Coast refineries became a political litmus test for Obama, who said Friday that the pipeline had taken on “an overinflated role in our political discourse.”
 
 The State Department, which controls permits for projects that cross international boundaries, concluded that neither approval nor rejection of the project would significantly alter the globe’s overall carbon output or U.S. gasoline prices.
+
+"America’s now a global leader when it comes to taking serious action to fight climate change,” Obama said. “And frankly, approving this project would have undercut that global leadership. And that’s the biggest risk we face — not acting.”
+
+Denying TransCanada Corp. a permit for the 1,179-mile pipeline between Hardisty, Alberta, and Steele City, Neb., ends a seven-year fight over a project that became a symbol in the political battle over climate change.
