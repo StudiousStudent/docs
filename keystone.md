@@ -5,3 +5,5 @@ President Obama announced Friday that his administration will not issue a permit
 Denying TransCanada Corp. a permit for the 1,179-mile pipeline between Hardisty, Alberta, and Steele City, Neb., ends a seven-year fight over a project that became a symbol in the political battle over climate change.
 
 Several former administration officials said Friday that Obama and Secretary of State John F. Kerry had decided to block the project two years ago but waited for the legally required internal review, a revised permit application and, finally, a politically opportune time to announce the decision.
+
+Backers of the project said it would ensure a secure supply of oil from a reliable U.S. ally and create jobs; opponents said it would exacerbate climate change by releasing a massive amount of carbon into the atmosphere and would produce pollution hazards along the pipeline’s route.
